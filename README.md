@@ -9,4 +9,6 @@
 
 ![adam-pw](https://github.com/Adam-pw/Adam-pw/blob/main/animation_500_kxa883sd.gif)
 
-\- 🌱 I’m currently learning Web Development and other programming languages - 📫 How to reach me \*\*adampithewan@gmail.com\*\* - ⚡ Fun fact :- Food and Music🎵 are the reasons to live.  
+\- 🌱 I’m currently learning Web Development and other programming languages 
+
+\- ⚡ Fun fact :- Food and Music🎵 are the reasons to live.  
